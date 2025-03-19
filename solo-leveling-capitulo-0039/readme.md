@@ -1,6 +1,6 @@
 # solo-leveling-capitulo-0039
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0038/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0040/)
-![0001-gYSjvP4EBGf_a.jpg](0001-gYSjvP4EBGf_a.jpg)
+![0001-gYSjvP4EBGfxa.jpg](0001-gYSjvP4EBGfxa.jpg)
 
 ![0002-krgabLspPskK7.jpg](0002-krgabLspPskK7.jpg)
 
@@ -10,7 +10,7 @@
 
 ![0005-j8n8Vf5NagQ4m.jpg](0005-j8n8Vf5NagQ4m.jpg)
 
-![0006--dd_qhac6sN57.jpg](0006--dd_qhac6sN57.jpg)
+![0006--ddxqhac6sN57.jpg](0006--ddxqhac6sN57.jpg)
 
 ![0007-k3VjJoDKsi2ml.jpg](0007-k3VjJoDKsi2ml.jpg)
 
@@ -24,7 +24,7 @@
 
 ![0012-jJYWlsUBlSL77.jpg](0012-jJYWlsUBlSL77.jpg)
 
-![0013-0MaGyfEJ_3CYU.jpg](0013-0MaGyfEJ_3CYU.jpg)
+![0013-0MaGyfEJx3CYU.jpg](0013-0MaGyfEJx3CYU.jpg)
 
 ![0014-06GxMkbhJYuf8.jpg](0014-06GxMkbhJYuf8.jpg)
 

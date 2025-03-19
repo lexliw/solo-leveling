@@ -1,6 +1,6 @@
 # solo-leveling-capitulo-0026
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0025/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0027/)
-![0001-I0hIUIEjU_82A.jpg](0001-I0hIUIEjU_82A.jpg)
+![0001-I0hIUIEjUx82A.jpg](0001-I0hIUIEjUx82A.jpg)
 
 ![0002-be-KCcKaOKvX2.jpg](0002-be-KCcKaOKvX2.jpg)
 
@@ -14,7 +14,7 @@
 
 ![0007-3Kg5OX0aQMo75.jpg](0007-3Kg5OX0aQMo75.jpg)
 
-![0008-3_98r1azrD3Pn.jpg](0008-3_98r1azrD3Pn.jpg)
+![0008-3x98r1azrD3Pn.jpg](0008-3x98r1azrD3Pn.jpg)
 
 ![0009-tZovHfgTloUlA.jpg](0009-tZovHfgTloUlA.jpg)
 
@@ -26,7 +26,7 @@
 
 ![0013-FGZza5g3ENNVQ.jpg](0013-FGZza5g3ENNVQ.jpg)
 
-![0014-7Iu_REWf0uomD.jpg](0014-7Iu_REWf0uomD.jpg)
+![0014-7IuxREWf0uomD.jpg](0014-7IuxREWf0uomD.jpg)
 
 ![0015-d35C2vx-Dba99.jpg](0015-d35C2vx-Dba99.jpg)
 

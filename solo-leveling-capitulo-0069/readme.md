@@ -1,8 +1,8 @@
 # solo-leveling-capitulo-0069
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0068/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0070/)
-![0001-1Zi5rrg4N_Wt9.jpg](0001-1Zi5rrg4N_Wt9.jpg)
+![0001-1Zi5rrg4NxWt9.jpg](0001-1Zi5rrg4NxWt9.jpg)
 
-![0002-QBkEo-S5E_Qyb.jpg](0002-QBkEo-S5E_Qyb.jpg)
+![0002-QBkEo-S5ExQyb.jpg](0002-QBkEo-S5ExQyb.jpg)
 
 ![0003-nYIX7PRpXDr02.jpg](0003-nYIX7PRpXDr02.jpg)
 
@@ -14,7 +14,7 @@
 
 ![0007-rQH5BFbVRvm9P.jpg](0007-rQH5BFbVRvm9P.jpg)
 
-![0008-8TCyvxsoU_PjT.jpg](0008-8TCyvxsoU_PjT.jpg)
+![0008-8TCyvxsoUxPjT.jpg](0008-8TCyvxsoUxPjT.jpg)
 
 ![0009-t1ZwiDWJQcPFu.jpg](0009-t1ZwiDWJQcPFu.jpg)
 
@@ -30,7 +30,7 @@
 
 ![0015-16jDdSdr1c33W.jpg](0015-16jDdSdr1c33W.jpg)
 
-![0016-m_-sl8B23VXce.jpg](0016-m_-sl8B23VXce.jpg)
+![0016-mx-sl8B23VXce.jpg](0016-mx-sl8B23VXce.jpg)
 
 ![0017-JfT2vWV4KiWrE.jpg](0017-JfT2vWV4KiWrE.jpg)
 
@@ -42,9 +42,9 @@
 
 ![0021-qKY6pIA3e9xyA.jpg](0021-qKY6pIA3e9xyA.jpg)
 
-![0022-VweDBYOoW_bje.jpg](0022-VweDBYOoW_bje.jpg)
+![0022-VweDBYOoWxbje.jpg](0022-VweDBYOoWxbje.jpg)
 
-![0023-ZuOADnYDhv_RL.jpg](0023-ZuOADnYDhv_RL.jpg)
+![0023-ZuOADnYDhvxRL.jpg](0023-ZuOADnYDhvxRL.jpg)
 
 ![0024-0zwItg9YqyqKi.jpg](0024-0zwItg9YqyqKi.jpg)
 
@@ -56,11 +56,11 @@
 
 ![0028-uLyO6GbyPH2cR.jpg](0028-uLyO6GbyPH2cR.jpg)
 
-![0029-N7_eqRyBmqOus.jpg](0029-N7_eqRyBmqOus.jpg)
+![0029-N7xeqRyBmqOus.jpg](0029-N7xeqRyBmqOus.jpg)
 
 ![0030-6LveMbyj62QEh.jpg](0030-6LveMbyj62QEh.jpg)
 
-![0031-GlxrdxXlgX2r_.jpg](0031-GlxrdxXlgX2r_.jpg)
+![0031-GlxrdxXlgX2rx.jpg](0031-GlxrdxXlgX2rx.jpg)
 
 ![0032-UxRFNmf8IB8QM.jpg](0032-UxRFNmf8IB8QM.jpg)
 
@@ -68,13 +68,13 @@
 
 ![0034-isH9wsaYDkh3g.jpg](0034-isH9wsaYDkh3g.jpg)
 
-![0035-FI_tun-bKW0Tl.jpg](0035-FI_tun-bKW0Tl.jpg)
+![0035-FIxtun-bKW0Tl.jpg](0035-FIxtun-bKW0Tl.jpg)
 
 ![0036-tjD2FV-25YY-s.jpg](0036-tjD2FV-25YY-s.jpg)
 
 ![0037-kY9kmmTyvCS74.jpg](0037-kY9kmmTyvCS74.jpg)
 
-![0038-8egsyG7932B_i.jpg](0038-8egsyG7932B_i.jpg)
+![0038-8egsyG7932Bxi.jpg](0038-8egsyG7932Bxi.jpg)
 
 ![0039-1Yj6MM37BX7T3.jpg](0039-1Yj6MM37BX7T3.jpg)
 

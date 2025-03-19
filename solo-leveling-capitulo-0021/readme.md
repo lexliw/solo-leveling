@@ -8,7 +8,7 @@
 
 ![0004-Tu5iWZcSezpXs.jpg](0004-Tu5iWZcSezpXs.jpg)
 
-![0005-s2sWjd_FFo_HD.jpg](0005-s2sWjd_FFo_HD.jpg)
+![0005-s2sWjdxFFoxHD.jpg](0005-s2sWjdxFFoxHD.jpg)
 
 ![0006-u8gTzVAaH9wSJ.jpg](0006-u8gTzVAaH9wSJ.jpg)
 
@@ -22,7 +22,7 @@
 
 ![0011-brXSzAbwvewxK.jpg](0011-brXSzAbwvewxK.jpg)
 
-![0012-Up_lJhHG-re8_.jpg](0012-Up_lJhHG-re8_.jpg)
+![0012-UpxlJhHG-re8x.jpg](0012-UpxlJhHG-re8x.jpg)
 
 ![0013-yyLjZi8AwXgZd.jpg](0013-yyLjZi8AwXgZd.jpg)
 

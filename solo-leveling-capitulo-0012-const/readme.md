@@ -1,12 +1,12 @@
 # solo-leveling-capitulo-0012-const
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0011/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0013/)
-![0001-uJAQoynUy4_iS.jpg](0001-uJAQoynUy4_iS.jpg)
+![0001-uJAQoynUy4xiS.jpg](0001-uJAQoynUy4xiS.jpg)
 
 ![0002--bFcfa0W-fwMK.jpg](0002--bFcfa0W-fwMK.jpg)
 
 ![0003-iJJDNDvyP2ZQi.jpg](0003-iJJDNDvyP2ZQi.jpg)
 
-![0004-qo0RvIT_DJamm.jpg](0004-qo0RvIT_DJamm.jpg)
+![0004-qo0RvITxDJamm.jpg](0004-qo0RvITxDJamm.jpg)
 
 ![0005-4h8Uhf9grCbv-.jpg](0005-4h8Uhf9grCbv-.jpg)
 

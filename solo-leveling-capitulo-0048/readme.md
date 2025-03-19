@@ -12,7 +12,7 @@
 
 ![0006-BpVsqdYfX1XZd.jpg](0006-BpVsqdYfX1XZd.jpg)
 
-![0007-PvP2c-2VNbxP_.jpg](0007-PvP2c-2VNbxP_.jpg)
+![0007-PvP2c-2VNbxPx.jpg](0007-PvP2c-2VNbxPx.jpg)
 
 ![0008-Enze4j8EZ9ohj.jpg](0008-Enze4j8EZ9ohj.jpg)
 

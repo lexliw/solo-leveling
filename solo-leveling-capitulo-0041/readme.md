@@ -26,7 +26,7 @@
 
 ![0013-lzisu6jZWnBHD.jpg](0013-lzisu6jZWnBHD.jpg)
 
-![0014-2GrL_x7znXv5z.jpg](0014-2GrL_x7znXv5z.jpg)
+![0014-2GrLxx7znXv5z.jpg](0014-2GrLxx7znXv5z.jpg)
 
 ![0015-UdbxjZKuwoLG1.jpg](0015-UdbxjZKuwoLG1.jpg)
 

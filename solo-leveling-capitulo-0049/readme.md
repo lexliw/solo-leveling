@@ -2,7 +2,7 @@
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0048/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0050/)
 ![0001-5MJMFS2SJsXjw.jpg](0001-5MJMFS2SJsXjw.jpg)
 
-![0002-KMNYVKUFI_J55.jpg](0002-KMNYVKUFI_J55.jpg)
+![0002-KMNYVKUFIxJ55.jpg](0002-KMNYVKUFIxJ55.jpg)
 
 ![0003-xQUbI9Jnl01ta.jpg](0003-xQUbI9Jnl01ta.jpg)
 

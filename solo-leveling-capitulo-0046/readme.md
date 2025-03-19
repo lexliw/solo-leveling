@@ -1,10 +1,10 @@
 # solo-leveling-capitulo-0046
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0045/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0047/)
-![0001-XH1qOYt3UuVx_.jpg](0001-XH1qOYt3UuVx_.jpg)
+![0001-XH1qOYt3UuVxx.jpg](0001-XH1qOYt3UuVxx.jpg)
 
-![0002-6OfP8g6p4bfo_.jpg](0002-6OfP8g6p4bfo_.jpg)
+![0002-6OfP8g6p4bfox.jpg](0002-6OfP8g6p4bfox.jpg)
 
-![0003-6NZVFM2_NWjuy.jpg](0003-6NZVFM2_NWjuy.jpg)
+![0003-6NZVFM2xNWjuy.jpg](0003-6NZVFM2xNWjuy.jpg)
 
 ![0004-U4NPRbFfddJ6k.jpg](0004-U4NPRbFfddJ6k.jpg)
 

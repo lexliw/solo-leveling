@@ -1,12 +1,12 @@
 # solo-leveling-capitulo-0015
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0014-const/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0016/)
-![0001-KsJ4BL9_6BOXK.jpg](0001-KsJ4BL9_6BOXK.jpg)
+![0001-KsJ4BL9x6BOXK.jpg](0001-KsJ4BL9x6BOXK.jpg)
 
 ![0002-d3wTUxXAHXyXF.jpg](0002-d3wTUxXAHXyXF.jpg)
 
-![0003-Rapr3v_f6DTFc.jpg](0003-Rapr3v_f6DTFc.jpg)
+![0003-Rapr3vxf6DTFc.jpg](0003-Rapr3vxf6DTFc.jpg)
 
-![0004-OEBih_txv6-kB.jpg](0004-OEBih_txv6-kB.jpg)
+![0004-OEBihxtxv6-kB.jpg](0004-OEBihxtxv6-kB.jpg)
 
 ![0005-sjLIcqObfQS4j.jpg](0005-sjLIcqObfQS4j.jpg)
 
@@ -22,7 +22,7 @@
 
 ![0011-wgTlmRad8TAf1.jpg](0011-wgTlmRad8TAf1.jpg)
 
-![0012-60eJpOSXxyfP_.jpg](0012-60eJpOSXxyfP_.jpg)
+![0012-60eJpOSXxyfPx.jpg](0012-60eJpOSXxyfPx.jpg)
 
 ![0013-isOcMNVb-xKU6.jpg](0013-isOcMNVb-xKU6.jpg)
 

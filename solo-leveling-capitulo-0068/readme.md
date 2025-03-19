@@ -1,6 +1,6 @@
 # solo-leveling-capitulo-0068
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0067/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0069/)
-![0001-Kfo51iSjKs_sR.jpg](0001-Kfo51iSjKs_sR.jpg)
+![0001-Kfo51iSjKsxsR.jpg](0001-Kfo51iSjKsxsR.jpg)
 
 ![0002-GgKbvqhJ7-KwL.jpg](0002-GgKbvqhJ7-KwL.jpg)
 
@@ -10,15 +10,15 @@
 
 ![0005-MT7ip96XodCc1.jpg](0005-MT7ip96XodCc1.jpg)
 
-![0006-v_-XZMdms6wet.jpg](0006-v_-XZMdms6wet.jpg)
+![0006-vx-XZMdms6wet.jpg](0006-vx-XZMdms6wet.jpg)
 
 ![0007-6LwL6yIUxibQH.jpg](0007-6LwL6yIUxibQH.jpg)
 
-![0008-xJt44_-mMz-tZ.jpg](0008-xJt44_-mMz-tZ.jpg)
+![0008-xJt44x-mMz-tZ.jpg](0008-xJt44x-mMz-tZ.jpg)
 
 ![0009-4xaJXwuEonZQB.jpg](0009-4xaJXwuEonZQB.jpg)
 
-![0010-TlFuxxES_KtqM.jpg](0010-TlFuxxES_KtqM.jpg)
+![0010-TlFuxxESxKtqM.jpg](0010-TlFuxxESxKtqM.jpg)
 
 ![0011-SI2C-O0aWcM6T.jpg](0011-SI2C-O0aWcM6T.jpg)
 
@@ -30,7 +30,7 @@
 
 ![0015-csaxuGjtgmvAY.jpg](0015-csaxuGjtgmvAY.jpg)
 
-![0016-QkzBo3KHUifQ_.jpg](0016-QkzBo3KHUifQ_.jpg)
+![0016-QkzBo3KHUifQx.jpg](0016-QkzBo3KHUifQx.jpg)
 
 ![0017-6WgMS55-8mrU0.jpg](0017-6WgMS55-8mrU0.jpg)
 
@@ -38,7 +38,7 @@
 
 ![0019-D2m7R5WE84Ejk.jpg](0019-D2m7R5WE84Ejk.jpg)
 
-![0020-oaPfKP_mlynRf.jpg](0020-oaPfKP_mlynRf.jpg)
+![0020-oaPfKPxmlynRf.jpg](0020-oaPfKPxmlynRf.jpg)
 
 ![0021-bEL6aWcgeM5Sr.jpg](0021-bEL6aWcgeM5Sr.jpg)
 
@@ -48,7 +48,7 @@
 
 ![0024-xzUFZ9lb6X5Ll.jpg](0024-xzUFZ9lb6X5Ll.jpg)
 
-![0025-g-flneLo_zB6V.jpg](0025-g-flneLo_zB6V.jpg)
+![0025-g-flneLoxzB6V.jpg](0025-g-flneLoxzB6V.jpg)
 
 ![0026-FY56OfhNXlOtW.jpg](0026-FY56OfhNXlOtW.jpg)
 
@@ -58,7 +58,7 @@
 
 ![0029-1GZiDBhzlyrIc.jpg](0029-1GZiDBhzlyrIc.jpg)
 
-![0030-cxteV_icsqN6Q.jpg](0030-cxteV_icsqN6Q.jpg)
+![0030-cxteVxicsqN6Q.jpg](0030-cxteVxicsqN6Q.jpg)
 
 ![0031--becrG8ZWchhG.jpg](0031--becrG8ZWchhG.jpg)
 
@@ -74,7 +74,7 @@
 
 ![0037-VMIWhEnD0EIAH.jpg](0037-VMIWhEnD0EIAH.jpg)
 
-![0038-RWo_gWE-koXgb.jpg](0038-RWo_gWE-koXgb.jpg)
+![0038-RWoxgWE-koXgb.jpg](0038-RWoxgWE-koXgb.jpg)
 
 ![0039-vac3BSrPRnYAu.jpg](0039-vac3BSrPRnYAu.jpg)
 

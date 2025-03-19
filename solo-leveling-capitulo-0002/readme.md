@@ -12,7 +12,7 @@
 
 ![0006-L32QsG0EOnfva.jpg](0006-L32QsG0EOnfva.jpg)
 
-![0007-Z_vNRFCc4p5N4.jpg](0007-Z_vNRFCc4p5N4.jpg)
+![0007-ZxvNRFCc4p5N4.jpg](0007-ZxvNRFCc4p5N4.jpg)
 
 ![0008-bYAqa0ei3btVH.jpg](0008-bYAqa0ei3btVH.jpg)
 

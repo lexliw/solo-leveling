@@ -289,28 +289,25 @@ for folder in onlyfolders:
 from os import listdir
 from os.path import isfile, isdir, join
 
-# mypath = './'
+mypath = './'
 
-# onlyfolders = [f for f in listdir(mypath) if isdir(join(mypath, f))]
-# onlyfolders.sort()
-# print(onlyfolders)
+onlyfolders = [f for f in listdir(mypath) if isdir(join(mypath, f))]
+onlyfolders.sort()
+print(onlyfolders)
 
-# for folder in onlyfolders:
-#     chapterFolder = f'./{folder}/'
-#     onlyfiles = [f for f in listdir(chapterFolder) if isfile(join(chapterFolder, f))]
-#     onlyfiles.sort()
-#     for file in onlyfiles:
-#         if len(file.split('.')[0]) <= 2:
-#             newfilename= file.replace(file.split('.')[0], file.split('.')[0].zfill(3))            
-#             os.rename(f'{chapterFolder}{file}', f'{chapterFolder}{newfilename}')
-#         if 'pagina_' in file or '-optimized' in file  or '-copiar' in file or '411409_' in file or '409788_' in file  or '430151_' in file:
-#             newfilename= file.replace('pagina_','').replace('-optimized','').replace('-copiar','').replace('411409_','').replace('409788_','').replace('430151_','')
-#             newfilename= newfilename.replace(newfilename.split('.')[0], newfilename.split('.')[0].zfill(3))            
-#             os.rename(f'{chapterFolder}{file}', f'{chapterFolder}{newfilename}')
+for folder in onlyfolders:
+    chapterFolder = f'./{folder}/'
+    onlyfiles = [f for f in listdir(chapterFolder) if isfile(join(chapterFolder, f))]
+    onlyfiles.sort()
+    for file in onlyfiles:
+        if '_' in file :
+            newfilename= file.replace('_','x')        
+            print(f'{folder}: {file} -> {newfilename}')
+            # os.rename(f'{chapterFolder}{file}', f'{chapterFolder}{newfilename}')
     
-#     onlyfiles = [f for f in listdir(chapterFolder) if isfile(join(chapterFolder, f))]
-#     onlyfiles.sort()
-#     print(f'{folder}:{onlyfiles}')
+    onlyfiles = [f for f in listdir(chapterFolder) if isfile(join(chapterFolder, f))]
+    onlyfiles.sort()
+    print(f'{folder}:{onlyfiles}')
 
 
 # %%

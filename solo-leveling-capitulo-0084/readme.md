@@ -2,9 +2,9 @@
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0083/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0085/)
 ![0001-dDwGQ5LJhyYVo.jpg](0001-dDwGQ5LJhyYVo.jpg)
 
-![0002-f0_sfmV0g-tLE.jpg](0002-f0_sfmV0g-tLE.jpg)
+![0002-f0xsfmV0g-tLE.jpg](0002-f0xsfmV0g-tLE.jpg)
 
-![0003-JAClh_SoJjXVf.jpg](0003-JAClh_SoJjXVf.jpg)
+![0003-JAClhxSoJjXVf.jpg](0003-JAClhxSoJjXVf.jpg)
 
 ![0004-D88F2FyadomrJ.jpg](0004-D88F2FyadomrJ.jpg)
 
@@ -20,7 +20,7 @@
 
 ![0010-GpMT4IZ1ih0jV.jpg](0010-GpMT4IZ1ih0jV.jpg)
 
-![0011-eC_oM1_JMLeUv.jpg](0011-eC_oM1_JMLeUv.jpg)
+![0011-eCxoM1xJMLeUv.jpg](0011-eCxoM1xJMLeUv.jpg)
 
 ![0012-YW6Dzg9eDdwZt.jpg](0012-YW6Dzg9eDdwZt.jpg)
 
@@ -30,7 +30,7 @@
 
 ![0015-jwzZg9X1wimNr.jpg](0015-jwzZg9X1wimNr.jpg)
 
-![0016-HU07K_5zjUY3I.jpg](0016-HU07K_5zjUY3I.jpg)
+![0016-HU07Kx5zjUY3I.jpg](0016-HU07Kx5zjUY3I.jpg)
 
 ![0017-5iNe9hLd38x4I.jpg](0017-5iNe9hLd38x4I.jpg)
 
@@ -56,6 +56,6 @@
 
 ![0028-Z03Q7KyhRGjbG.jpg](0028-Z03Q7KyhRGjbG.jpg)
 
-![0029-pId-zNex_6dA7.jpg](0029-pId-zNex_6dA7.jpg)
+![0029-pId-zNexx6dA7.jpg](0029-pId-zNexx6dA7.jpg)
 
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0083/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0085/)

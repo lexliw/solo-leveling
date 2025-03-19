@@ -2,7 +2,7 @@
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0123/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0125/)
 ![0000-45KATR45fpTKw.jpg](0000-45KATR45fpTKw.jpg)
 
-![0001-hMGA_knXCQ7Ki.jpg](0001-hMGA_knXCQ7Ki.jpg)
+![0001-hMGAxknXCQ7Ki.jpg](0001-hMGAxknXCQ7Ki.jpg)
 
 ![0002-DP0Vqe7lTnwUE.jpg](0002-DP0Vqe7lTnwUE.jpg)
 
@@ -26,7 +26,7 @@
 
 ![0012-e7bT5Wm9SNf2K.jpg](0012-e7bT5Wm9SNf2K.jpg)
 
-![0013-FursJ_2GmYgn4.jpg](0013-FursJ_2GmYgn4.jpg)
+![0013-FursJx2GmYgn4.jpg](0013-FursJx2GmYgn4.jpg)
 
 ![0014-nt6ErDVHtlch8.jpg](0014-nt6ErDVHtlch8.jpg)
 
@@ -36,7 +36,7 @@
 
 ![0017-dX98OcI-cCBPm.jpg](0017-dX98OcI-cCBPm.jpg)
 
-![0018-FEyjuK9ngJ_lQ.jpg](0018-FEyjuK9ngJ_lQ.jpg)
+![0018-FEyjuK9ngJxlQ.jpg](0018-FEyjuK9ngJxlQ.jpg)
 
 ![0019-ZcCEJpiIA1ZXD.jpg](0019-ZcCEJpiIA1ZXD.jpg)
 

@@ -22,7 +22,7 @@
 
 ![0010-AwRX0A6iH8QHH.jpg](0010-AwRX0A6iH8QHH.jpg)
 
-![0011-ByGv6k_ilnb1u.jpg](0011-ByGv6k_ilnb1u.jpg)
+![0011-ByGv6kxilnb1u.jpg](0011-ByGv6kxilnb1u.jpg)
 
 ![0012-Kz1VstZyNxDVe.jpg](0012-Kz1VstZyNxDVe.jpg)
 

@@ -1,6 +1,6 @@
 # solo-leveling-capitulo-0110
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0109/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0111/)
-![0001-qCVeSGdcu0Ow_.jpg](0001-qCVeSGdcu0Ow_.jpg)
+![0001-qCVeSGdcu0Owx.jpg](0001-qCVeSGdcu0Owx.jpg)
 
 ![0002-dA0nbqmYDbplo.jpg](0002-dA0nbqmYDbplo.jpg)
 
@@ -28,7 +28,7 @@
 
 ![0014--pmGil7vqoPAI.jpg](0014--pmGil7vqoPAI.jpg)
 
-![0015-LCWhYKBg_EMOZ.jpg](0015-LCWhYKBg_EMOZ.jpg)
+![0015-LCWhYKBgxEMOZ.jpg](0015-LCWhYKBgxEMOZ.jpg)
 
 ![0016-vAIVjf63qisjW.jpg](0016-vAIVjf63qisjW.jpg)
 

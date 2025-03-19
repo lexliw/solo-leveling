@@ -1,6 +1,6 @@
 # solo-leveling-capitulo-0047
 ##### [ANTERIOR](/solo-leveling/solo-leveling-capitulo-0046/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MENU](/solo-leveling/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[PRÓXIMO](/solo-leveling/solo-leveling-capitulo-0048/)
-![0001-K_hWsIXiFHSmo.jpg](0001-K_hWsIXiFHSmo.jpg)
+![0001-KxhWsIXiFHSmo.jpg](0001-KxhWsIXiFHSmo.jpg)
 
 ![0002-xg5M0J8Vyh2PW.jpg](0002-xg5M0J8Vyh2PW.jpg)
 
