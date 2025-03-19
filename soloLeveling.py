@@ -1,6 +1,6 @@
 
 #%%
-# lista dos capitulos que srão baixados
+# lista dos capitulos que srão baixados -
 mangaList = [
     # "https://www.lermangas.com.br/2024/09/solo-leveling-capitulo-200.html",
     # "https://www.lermangas.com.br/2024/09/solo-leveling-capitulo-199.html",
