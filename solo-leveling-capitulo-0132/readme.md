@@ -48,7 +48,7 @@
 
 ![0023-xAuwgMcgROa3I.jpg](0023-xAuwgMcgROa3I.jpg)
 
-![0024-EN18ArLnPomfZ.jpg"]](0024-EN18ArLnPomfZ.jpg"])
+![0024-EN18ArLnPomfZ.jpg](0024-EN18ArLnPomfZ.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

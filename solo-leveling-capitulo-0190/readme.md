@@ -44,7 +44,7 @@
 
 ![0021-HxrWDFKMOxilz.jpg](0021-HxrWDFKMOxilz.jpg)
 
-![0022-xkH8QxVWvUXUe.jpg"]](0022-xkH8QxVWvUXUe.jpg"])
+![0022-xkH8QxVWvUXUe.jpg](0022-xkH8QxVWvUXUe.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

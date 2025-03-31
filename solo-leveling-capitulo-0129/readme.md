@@ -70,7 +70,7 @@
 
 ![0034-LKpB6b9rLMbNs.jpg](0034-LKpB6b9rLMbNs.jpg)
 
-![0035-6dZgjxU4Ccy2k.jpg"]](0035-6dZgjxU4Ccy2k.jpg"])
+![0035-6dZgjxU4Ccy2k.jpg](0035-6dZgjxU4Ccy2k.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

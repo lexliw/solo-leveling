@@ -46,7 +46,7 @@
 
 ![0022-W8Yax7MwiEcu0.jpg](0022-W8Yax7MwiEcu0.jpg)
 
-![0023-yPn7VpuLJfJ1m.jpg"]](0023-yPn7VpuLJfJ1m.jpg"])
+![0023-yPn7VpuLJfJ1m.jpg](0023-yPn7VpuLJfJ1m.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -58,7 +58,7 @@
 
 ![0028-OqxdZqR0f96t-.jpg](0028-OqxdZqR0f96t-.jpg)
 
-![0029-iXqg8PQelHC0U.jpg"]](0029-iXqg8PQelHC0U.jpg"])
+![0029-iXqg8PQelHC0U.jpg](0029-iXqg8PQelHC0U.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

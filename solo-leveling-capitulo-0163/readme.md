@@ -78,7 +78,7 @@
 
 ![0038-oISs0f-xmp4Zm.jpg](0038-oISs0f-xmp4Zm.jpg)
 
-![0039-CBw9hAzXxWkh4.jpg"]](0039-CBw9hAzXxWkh4.jpg"])
+![0039-CBw9hAzXxWkh4.jpg](0039-CBw9hAzXxWkh4.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

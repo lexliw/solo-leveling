@@ -72,7 +72,7 @@
 
 ![0035-z0-c23gMJ5-mh.jpg](0035-z0-c23gMJ5-mh.jpg)
 
-![0036-SxSJiGnk-w590.jpg"]](0036-SxSJiGnk-w590.jpg"])
+![0036-SxSJiGnk-w590.jpg](0036-SxSJiGnk-w590.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

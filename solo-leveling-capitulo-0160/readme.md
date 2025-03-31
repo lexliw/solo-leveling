@@ -68,7 +68,7 @@
 
 ![0033-RXbO74ixBOl8c.jpg](0033-RXbO74ixBOl8c.jpg)
 
-![0034-kxXQfvCLiFI52.jpg"]](0034-kxXQfvCLiFI52.jpg"])
+![0034-kxXQfvCLiFI52.jpg](0034-kxXQfvCLiFI52.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

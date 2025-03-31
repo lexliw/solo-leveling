@@ -84,7 +84,7 @@
 
 ![0041-ydyrv2AIZ2UAJ.jpg](0041-ydyrv2AIZ2UAJ.jpg)
 
-![0042-6hm3GZ8R5BICp.jpg"]](0042-6hm3GZ8R5BICp.jpg"])
+![0042-6hm3GZ8R5BICp.jpg](0042-6hm3GZ8R5BICp.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

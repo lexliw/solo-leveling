@@ -52,7 +52,7 @@
 
 ![0025-wBBEt5Jh4EFvf.jpg](0025-wBBEt5Jh4EFvf.jpg)
 
-![0026-Sk3WP2O3J1UKT.jpg"]](0026-Sk3WP2O3J1UKT.jpg"])
+![0026-Sk3WP2O3J1UKT.jpg](0026-Sk3WP2O3J1UKT.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

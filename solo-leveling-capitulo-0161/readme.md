@@ -80,7 +80,7 @@
 
 ![0039-9UOHMpLh5yx52.jpg](0039-9UOHMpLh5yx52.jpg)
 
-![0040-YNFFTr8S9Ddy1.jpg"]](0040-YNFFTr8S9Ddy1.jpg"])
+![0040-YNFFTr8S9Ddy1.jpg](0040-YNFFTr8S9Ddy1.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

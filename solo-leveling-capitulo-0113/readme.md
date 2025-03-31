@@ -50,7 +50,7 @@
 
 ![0024-AMdAnsj8Hy7b-.jpg](0024-AMdAnsj8Hy7b-.jpg)
 
-![0025-gr9qHIUf8qstG.jpg"]](0025-gr9qHIUf8qstG.jpg"])
+![0025-gr9qHIUf8qstG.jpg](0025-gr9qHIUf8qstG.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

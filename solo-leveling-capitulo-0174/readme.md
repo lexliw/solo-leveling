@@ -72,7 +72,7 @@
 
 ![0035-fryghY5aTng1q.jpg](0035-fryghY5aTng1q.jpg)
 
-![0036-88jZ4UgBxYmKl.jpg"]](0036-88jZ4UgBxYmKl.jpg"])
+![0036-88jZ4UgBxYmKl.jpg](0036-88jZ4UgBxYmKl.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

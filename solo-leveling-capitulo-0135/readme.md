@@ -60,7 +60,7 @@
 
 ![0029-sBkAFCNblaL6z.jpg](0029-sBkAFCNblaL6z.jpg)
 
-![0030-07x7ZDMCXDs7-.jpg"]](0030-07x7ZDMCXDs7-.jpg"])
+![0030-07x7ZDMCXDs7-.jpg](0030-07x7ZDMCXDs7-.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

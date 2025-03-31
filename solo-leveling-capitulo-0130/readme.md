@@ -60,7 +60,7 @@
 
 ![0029-1mC6C6Imj2za0.jpg](0029-1mC6C6Imj2za0.jpg)
 
-![0030-UZI0CIBQmLOcQ.jpg"]](0030-UZI0CIBQmLOcQ.jpg"])
+![0030-UZI0CIBQmLOcQ.jpg](0030-UZI0CIBQmLOcQ.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

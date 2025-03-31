@@ -64,7 +64,7 @@
 
 ![0031-cO9Eqpjz-xa43.jpg](0031-cO9Eqpjz-xa43.jpg)
 
-![0032-TRj8X-6OD6NyR.jpg"]](0032-TRj8X-6OD6NyR.jpg"])
+![0032-TRj8X-6OD6NyR.jpg](0032-TRj8X-6OD6NyR.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -68,7 +68,7 @@
 
 ![0033-sad8opfEbH1Fx.jpg](0033-sad8opfEbH1Fx.jpg)
 
-![0034-r2MDFAHsRdAsB.jpg"]](0034-r2MDFAHsRdAsB.jpg"])
+![0034-r2MDFAHsRdAsB.jpg](0034-r2MDFAHsRdAsB.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

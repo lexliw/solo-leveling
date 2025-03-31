@@ -64,7 +64,7 @@
 
 ![0031-HGbXPNvKr50ii.jpg](0031-HGbXPNvKr50ii.jpg)
 
-![0032-xcZKLI71PGpKh.jpg"]](0032-xcZKLI71PGpKh.jpg"])
+![0032-xcZKLI71PGpKh.jpg](0032-xcZKLI71PGpKh.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

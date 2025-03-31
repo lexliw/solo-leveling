@@ -56,7 +56,7 @@
 
 ![0027-x4Upxec1nkf1j.jpg](0027-x4Upxec1nkf1j.jpg)
 
-![0028-BwjdVW50UtvWD.jpg"]](0028-BwjdVW50UtvWD.jpg"])
+![0028-BwjdVW50UtvWD.jpg](0028-BwjdVW50UtvWD.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

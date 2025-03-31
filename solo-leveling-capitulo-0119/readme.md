@@ -58,7 +58,7 @@
 
 ![0028-stNjBYLcrVTIl.jpg](0028-stNjBYLcrVTIl.jpg)
 
-![0029-MKfx63wuxW2KX.jpg"]](0029-MKfx63wuxW2KX.jpg"])
+![0029-MKfx63wuxW2KX.jpg](0029-MKfx63wuxW2KX.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

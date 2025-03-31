@@ -52,7 +52,7 @@
 
 ![0025-MHcp4IMBjrpre.jpg](0025-MHcp4IMBjrpre.jpg)
 
-![0026-eP72MUTU0NtIM.jpg"]](0026-eP72MUTU0NtIM.jpg"])
+![0026-eP72MUTU0NtIM.jpg](0026-eP72MUTU0NtIM.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

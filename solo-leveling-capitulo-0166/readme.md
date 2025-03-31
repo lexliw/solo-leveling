@@ -68,7 +68,7 @@
 
 ![0033-xMmBuikeOovEo.jpg](0033-xMmBuikeOovEo.jpg)
 
-![0034-ZQwBSNTc87OVq.jpg"]](0034-ZQwBSNTc87OVq.jpg"])
+![0034-ZQwBSNTc87OVq.jpg](0034-ZQwBSNTc87OVq.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

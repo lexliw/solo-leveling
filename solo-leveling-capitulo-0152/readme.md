@@ -54,7 +54,7 @@
 
 ![0026-mFPgXF5hlLsgZ.jpg](0026-mFPgXF5hlLsgZ.jpg)
 
-![0027-X7OLvsireamks.jpg"]](0027-X7OLvsireamks.jpg"])
+![0027-X7OLvsireamks.jpg](0027-X7OLvsireamks.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

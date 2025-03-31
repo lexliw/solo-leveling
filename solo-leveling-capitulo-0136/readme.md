@@ -68,7 +68,7 @@
 
 ![0033-ADx3GuiZ3k-A4.jpg](0033-ADx3GuiZ3k-A4.jpg)
 
-![0034-gpWESE5f3yu7A.jpg"]](0034-gpWESE5f3yu7A.jpg"])
+![0034-gpWESE5f3yu7A.jpg](0034-gpWESE5f3yu7A.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -64,7 +64,7 @@
 
 ![0031-uiM8dofzY9qle.jpg](0031-uiM8dofzY9qle.jpg)
 
-![0032-vWDMpzrkoKmt0.jpg"]](0032-vWDMpzrkoKmt0.jpg"])
+![0032-vWDMpzrkoKmt0.jpg](0032-vWDMpzrkoKmt0.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

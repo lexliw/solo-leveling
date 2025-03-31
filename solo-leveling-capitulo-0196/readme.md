@@ -42,7 +42,7 @@
 
 ![0020-wrbM-vZkbFMxg.jpg](0020-wrbM-vZkbFMxg.jpg)
 
-![0021-txqLbAtaxLYAc.jpg"]](0021-txqLbAtaxLYAc.jpg"])
+![0021-txqLbAtaxLYAc.jpg](0021-txqLbAtaxLYAc.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

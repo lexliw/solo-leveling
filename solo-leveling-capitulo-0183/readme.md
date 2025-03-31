@@ -38,7 +38,7 @@
 
 ![0018-8Z3h9NeOCRoXl.jpg](0018-8Z3h9NeOCRoXl.jpg)
 
-![0019-cxIcD-qbm89ZU.jpg"]](0019-cxIcD-qbm89ZU.jpg"])
+![0019-cxIcD-qbm89ZU.jpg](0019-cxIcD-qbm89ZU.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

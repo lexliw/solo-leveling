@@ -64,7 +64,7 @@
 
 ![0031-W94u48ku4-yca.jpg](0031-W94u48ku4-yca.jpg)
 
-![0032-uqVh9KRYI7TNz.jpg"]](0032-uqVh9KRYI7TNz.jpg"])
+![0032-uqVh9KRYI7TNz.jpg](0032-uqVh9KRYI7TNz.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

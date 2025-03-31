@@ -64,7 +64,7 @@
 
 ![0031-NMimjiCCVAFpx.jpg](0031-NMimjiCCVAFpx.jpg)
 
-![0032-uynaepiVHDgA3.jpg"]](0032-uynaepiVHDgA3.jpg"])
+![0032-uynaepiVHDgA3.jpg](0032-uynaepiVHDgA3.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

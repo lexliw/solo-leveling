@@ -40,7 +40,7 @@
 
 ![0019-RmCD5Pt5LeWKA-m.jpg](0019-RmCD5Pt5LeWKA-m.jpg)
 
-![0020-K2vllp9h174X2-m.jpg"]](0020-K2vllp9h174X2-m.jpg"])
+![0020-K2vllp9h174X2-m.jpg](0020-K2vllp9h174X2-m.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

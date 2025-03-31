@@ -30,7 +30,7 @@
 
 ![0014-LKNejKIh7Zwyu.jpg](0014-LKNejKIh7Zwyu.jpg)
 
-![0015-KzK3Para0HbKt.jpg"]](0015-KzK3Para0HbKt.jpg"])
+![0015-KzK3Para0HbKt.jpg](0015-KzK3Para0HbKt.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

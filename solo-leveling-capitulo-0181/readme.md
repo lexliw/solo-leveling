@@ -38,7 +38,7 @@
 
 ![0018-T6xcTJxDDgeiR.jpg](0018-T6xcTJxDDgeiR.jpg)
 
-![0019-F9WmItqUodmZ5.jpg"]](0019-F9WmItqUodmZ5.jpg"])
+![0019-F9WmItqUodmZ5.jpg](0019-F9WmItqUodmZ5.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

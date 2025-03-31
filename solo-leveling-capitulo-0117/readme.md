@@ -48,7 +48,7 @@
 
 ![0023-zxVPEKyxwy5LO.jpg](0023-zxVPEKyxwy5LO.jpg)
 
-![0024-4zyHz6JLXX-Lu.jpg"]](0024-4zyHz6JLXX-Lu.jpg"])
+![0024-4zyHz6JLXX-Lu.jpg](0024-4zyHz6JLXX-Lu.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

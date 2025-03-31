@@ -72,7 +72,7 @@
 
 ![0035-Ne74dKix-b336.jpg](0035-Ne74dKix-b336.jpg)
 
-![0036-o20hZZQ6TqgmO.jpg"]](0036-o20hZZQ6TqgmO.jpg"])
+![0036-o20hZZQ6TqgmO.jpg](0036-o20hZZQ6TqgmO.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

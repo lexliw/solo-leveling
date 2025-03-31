@@ -54,7 +54,7 @@
 
 ![0026-e3WXKE3reLAhQ.jpg](0026-e3WXKE3reLAhQ.jpg)
 
-![0027-zQIalmPT5B-rX.jpg"]](0027-zQIalmPT5B-rX.jpg"])
+![0027-zQIalmPT5B-rX.jpg](0027-zQIalmPT5B-rX.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -50,7 +50,7 @@
 
 ![0024-0Rpx-8hZnn82Q.jpg](0024-0Rpx-8hZnn82Q.jpg)
 
-![0025-qmaC3My2-Rd9V.jpg"]](0025-qmaC3My2-Rd9V.jpg"])
+![0025-qmaC3My2-Rd9V.jpg](0025-qmaC3My2-Rd9V.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

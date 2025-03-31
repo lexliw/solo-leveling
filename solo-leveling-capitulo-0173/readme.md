@@ -66,7 +66,7 @@
 
 ![0032-TYOkxpgc07MnJ.jpg](0032-TYOkxpgc07MnJ.jpg)
 
-![0033-157GZzRGxvCHR.jpg"]](0033-157GZzRGxvCHR.jpg"])
+![0033-157GZzRGxvCHR.jpg](0033-157GZzRGxvCHR.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

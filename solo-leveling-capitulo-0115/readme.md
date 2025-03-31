@@ -50,7 +50,7 @@
 
 ![0024-cbIrkbnaSmCRh.jpg](0024-cbIrkbnaSmCRh.jpg)
 
-![0025-tS0BwFixFT53D.jpg"]](0025-tS0BwFixFT53D.jpg"])
+![0025-tS0BwFixFT53D.jpg](0025-tS0BwFixFT53D.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

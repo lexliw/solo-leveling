@@ -58,7 +58,7 @@
 
 ![0028-GOebNnnk-3ceR.jpg](0028-GOebNnnk-3ceR.jpg)
 
-![0029-338V7MzDaotK-.jpg"]](0029-338V7MzDaotK-.jpg"])
+![0029-338V7MzDaotK-.jpg](0029-338V7MzDaotK-.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

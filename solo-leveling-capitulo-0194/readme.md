@@ -40,7 +40,7 @@
 
 ![0019-G00ZPiNa5M7in.jpg](0019-G00ZPiNa5M7in.jpg)
 
-![0020-jE8unZQaoIi9C.jpg"]](0020-jE8unZQaoIi9C.jpg"])
+![0020-jE8unZQaoIi9C.jpg](0020-jE8unZQaoIi9C.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

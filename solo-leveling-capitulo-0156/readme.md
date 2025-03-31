@@ -60,7 +60,7 @@
 
 ![0029-XINvTnvs2pHwx.jpg](0029-XINvTnvs2pHwx.jpg)
 
-![0030-CJLia4nhAlXc-.jpg"]](0030-CJLia4nhAlXc-.jpg"])
+![0030-CJLia4nhAlXc-.jpg](0030-CJLia4nhAlXc-.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

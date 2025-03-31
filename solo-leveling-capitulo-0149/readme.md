@@ -76,7 +76,7 @@
 
 ![0037-xyD52JtL2KeZk.jpg](0037-xyD52JtL2KeZk.jpg)
 
-![0038-xTxx6PeEZoXmB.jpg"]](0038-xTxx6PeEZoXmB.jpg"])
+![0038-xTxx6PeEZoXmB.jpg](0038-xTxx6PeEZoXmB.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

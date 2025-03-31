@@ -58,7 +58,7 @@
 
 ![0028-yym3tLr0TvU8P.jpg](0028-yym3tLr0TvU8P.jpg)
 
-![0029-gl36tSN-6-xbv.jpg"]](0029-gl36tSN-6-xbv.jpg"])
+![0029-gl36tSN-6-xbv.jpg](0029-gl36tSN-6-xbv.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

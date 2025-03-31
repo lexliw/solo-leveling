@@ -82,7 +82,7 @@
 
 ![0040-mU8OxBWU0dXHc.jpg](0040-mU8OxBWU0dXHc.jpg)
 
-![0041-gtNVfdiLJIZsl.jpg"]](0041-gtNVfdiLJIZsl.jpg"])
+![0041-gtNVfdiLJIZsl.jpg](0041-gtNVfdiLJIZsl.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

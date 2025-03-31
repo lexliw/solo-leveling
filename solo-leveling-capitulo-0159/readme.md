@@ -56,7 +56,7 @@
 
 ![0027-f3zKywHFjUvxn.jpg](0027-f3zKywHFjUvxn.jpg)
 
-![0028-J73AwR-kJz9xe.jpg"]](0028-J73AwR-kJz9xe.jpg"])
+![0028-J73AwR-kJz9xe.jpg](0028-J73AwR-kJz9xe.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -62,7 +62,7 @@
 
 ![0030-EDRdeW8tKThRS.jpg](0030-EDRdeW8tKThRS.jpg)
 
-![0031-EQqTvn0blDcdY.jpg"]](0031-EQqTvn0blDcdY.jpg"])
+![0031-EQqTvn0blDcdY.jpg](0031-EQqTvn0blDcdY.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -34,7 +34,7 @@
 
 ![0016-GXAV6w3AgnpQm.jpg](0016-GXAV6w3AgnpQm.jpg)
 
-![0017-IKeDux6yS54JM.jpg"]](0017-IKeDux6yS54JM.jpg"])
+![0017-IKeDux6yS54JM.jpg](0017-IKeDux6yS54JM.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

@@ -60,7 +60,7 @@
 
 ![0029--ShNgMcqmO7Ly.jpg](0029--ShNgMcqmO7Ly.jpg)
 
-![0030-3wD5jdhuuC-Qr.jpg"]](0030-3wD5jdhuuC-Qr.jpg"])
+![0030-3wD5jdhuuC-Qr.jpg](0030-3wD5jdhuuC-Qr.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

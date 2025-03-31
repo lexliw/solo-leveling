@@ -58,7 +58,7 @@
 
 ![0028-8hn-uuFJbQQzy.jpg](0028-8hn-uuFJbQQzy.jpg)
 
-![0029-xLCNFkBoudxEb.jpg"]](0029-xLCNFkBoudxEb.jpg"])
+![0029-xLCNFkBoudxEb.jpg](0029-xLCNFkBoudxEb.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

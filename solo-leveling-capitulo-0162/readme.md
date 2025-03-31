@@ -64,7 +64,7 @@
 
 ![0031-hYTNx5Hb1f7yo.jpg](0031-hYTNx5Hb1f7yo.jpg)
 
-![0032-Ey2PYOYRP8b6R.jpg"]](0032-Ey2PYOYRP8b6R.jpg"])
+![0032-Ey2PYOYRP8b6R.jpg](0032-Ey2PYOYRP8b6R.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

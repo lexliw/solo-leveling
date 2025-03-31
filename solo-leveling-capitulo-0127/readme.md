@@ -74,7 +74,7 @@
 
 ![0036-b1hoe-nuqk1wh.jpg](0036-b1hoe-nuqk1wh.jpg)
 
-![0037-LiWzGYFdq5tiR.jpg"]](0037-LiWzGYFdq5tiR.jpg"])
+![0037-LiWzGYFdq5tiR.jpg](0037-LiWzGYFdq5tiR.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

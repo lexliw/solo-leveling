@@ -40,7 +40,7 @@
 
 ![0019-HOF1aYqHQxQrY.jpg](0019-HOF1aYqHQxQrY.jpg)
 
-![0020-hYVKeb6VV5c33.jpg"]](0020-hYVKeb6VV5c33.jpg"])
+![0020-hYVKeb6VV5c33.jpg](0020-hYVKeb6VV5c33.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 

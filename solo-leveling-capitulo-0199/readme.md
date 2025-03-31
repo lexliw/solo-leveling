@@ -38,7 +38,7 @@
 
 ![0018-eaFdv0sNIYCKM.jpg](0018-eaFdv0sNIYCKM.jpg)
 
-![0019-QvWP532H9IVSe.jpg"]](0019-QvWP532H9IVSe.jpg"])
+![0019-QvWP532H9IVSe.jpg](0019-QvWP532H9IVSe.jpg)
 
 ![0GRgd.jpg](0GRgd.jpg)
 
